@@ -35,7 +35,7 @@ I am currently available for **freelance opportunities** involving:
 ---
 
 ## 📫 Let's Connect
-* **LinkedIn:** [linkedin.com/in/karthiktalluri(https://www.linkedin.com/in/karthik-talluri/)
+* **LinkedIn:** [linkedin.com/in/karthiktalluri](https://www.linkedin.com/in/karthik-talluri/)
 * **Portfolio:** [bento.me/karthik](link)
 * **Email:** [karthik.talluri@gmail.com]
 
